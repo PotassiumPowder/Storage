@@ -7,10 +7,6 @@ Two: Read the title
 
 As Kanye West said:
 
-.                                    :eye:       :eye:
-
 > We're living the future so
-
-.                                            :lips:
 
 > the present is our past.
