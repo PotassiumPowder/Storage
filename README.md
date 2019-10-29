@@ -7,4 +7,4 @@ Two: Read the title
 
 As Kanye West said:
 
-> I'm living the future so the presence is my past
+> I'm living the future so the present is my past
